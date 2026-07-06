@@ -1,4 +1,4 @@
-# 
+# Profesional liquidity sniper bot herramientas para Mac OS | VIP liquidity sniper bot herramientas para PC Windows. Con control de deslizamiento y notificaciones de alerta — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
